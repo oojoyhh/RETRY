@@ -5,4 +5,5 @@ last week, i make this program.
 i was very embarassed
 but i think this can make me smart ^^
 
+## 1. hobby update
 ## 2. speciality update
