@@ -7,3 +7,5 @@ but i think this can make me smart ^^
 
 ## 1. hobby update
 ## 2. speciality update
+## modification
+E.O.D
